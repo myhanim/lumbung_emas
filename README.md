@@ -1,0 +1,1 @@
+# lumbung_emas
